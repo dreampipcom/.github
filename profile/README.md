@@ -1,6 +1,6 @@
 Upwards streaming 📡.
 
-DreamPip is fintech for compassion. We deepen the experience of investing and financing collectively, connecting communities worldwide in financial arrangements that thrive with a sole focus on happiness, through healthy competition.
+DreamPip is fintech for compassion. We deepen the experience of investing and financing collectively, connecting communities worldwide in financial arrangements that thrive to never fall short of happiness, through positive reinforcement.
 
 Our organizational structure is proprietary and is called Nexus Tree. DreamPip has a domain of Presence, where we take care of our brand, run a radio station, promote events, and establish an independent audiovisual streaming platform dedicated to the communities we engage with. Established between America and Europe since 2012, DreamPip (previously known as Remometro, Purizu, Karuna Collective, Bahouse, Let’s Hero, and Tacitera) had over 800 listeners on the radio in August 2022, with a total of over 200 hours of listening distributed among Italy, the United States, Brazil, and other countries with a smaller audience.
 
