@@ -1,3 +1,3 @@
 DreamPip is fintech for compassion.
 
-We long our dreams into investments, bridging the experience of hope and profits. 📡
+We long our dreams into happiness, bridging the experience of hope and profits. 📡
