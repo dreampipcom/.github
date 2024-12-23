@@ -8,6 +8,6 @@ Learning from our yesterdays, we can all plan options, to invest our troubles aw
 
 The world can be wonderful for everyone, depending on how we look at each other.
 
-A hug, a memento, a letter, or even 50 quids of fungible matter.
-
 A compliment, an act of kindness, a smile of joy, is always multiplied when lived together.
+
+A hug, a memento, a letter, or even 50 quids of fungible matter.
