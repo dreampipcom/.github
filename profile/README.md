@@ -1,6 +1,6 @@
 Founded in 2012, we dug tools for us to take closer care of our own feelings, time, space, actions, things, people, thoughts, and money.
 
-Learning from our yesterdays, we can all plan options, to invest our troubles away.
+Learn from yesterday, and we can plan better options, to short our troubles today.
 
 The world can be wonderful for everyone, depending on how we look at each other.
 
