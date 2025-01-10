@@ -1,4 +1,4 @@
-Founded in 2012, we vested in caring about how you: feel, make, do, be, write and invest.
+Founded in 2012, we vested in caring about how you: feel, make, do, live, write and invest.
 
 Check our yesterday, and we can settle better options, to short our troubles today.
 
