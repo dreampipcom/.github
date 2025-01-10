@@ -1,4 +1,4 @@
-Founded in 2012, we dug tools for us to take closer care of our own feelings, time, space, actions, things, people, thoughts, and money.
+Founded in 2012, we vested in tools to care for feelings, time, space, actions, things, people, thoughts, and money.
 
 Learn from yesterday, and we can plan better options, to short our troubles today.
 
