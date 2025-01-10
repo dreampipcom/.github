@@ -4,7 +4,7 @@ Founded in 2012, we vested in caring about how you: feel, make, do, be, write an
 
 Check our yesterday, and we can settle better options, to short our troubles today.
 
-The world can be wonderful for everyone, depending on how we look after each other.
+The world can be a wonderful promise, for everyone, with a hopeful gaze.
 
 A hug, a memento mori, a letter, or even 50 quids of fungible matter.
 
